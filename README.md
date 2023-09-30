@@ -1,0 +1,1 @@
+Dialogic _innovation & interaction_ is a research and consultancy firm based in Utrecht, the Netherlands. Our areas of expertise are digitization, innovation policy, among others, covering topics such as AI and machine learning, cyber security and the ICT labour market. We provide advice to the public sector founded in research. Read more at [dialogic.nl](https://dialogic.nl).
